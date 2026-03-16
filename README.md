@@ -3,7 +3,7 @@
 
 - Atualmente trabalhando em **GRUPO PARVI**
 
-- Estou atualmente atendendo. **Java,python,C,C++,Erlang,JS,HTML**
+- Estou atualmente Estudando: **Java,python,C,C++,Erlang,JS,HTML**
 
 - Entre em contato comigo **saulo5168@gmail.com**
 
